@@ -1,4 +1,4 @@
-![Web Development Company](https://scontent.fdac138-1.fna.fbcdn.net/v/t39.30808-6/292540200_120236520719932_8884392437029423304_n.png?_nc_cat=101&ccb=1-7&_nc_sid=e3f864&_nc_eui2=AeFs6xaL3KJIca4kk4HfdVLaGGeAwuYL2fYYZ4DC5gvZ9nfgPqchX_C-IXLW6ZvPvjX3XD55BdTwcUPOTmWxoT4P&_nc_ohc=5ipLbsJx7GQAX_oZ_3t&tn=Dj-SP3wrBBokYh8G&_nc_ht=scontent.fdac138-1.fna&oh=00_AT8MG3QW96GYP55hVlsHIggr5_EjROKxSngC3h6Mrm_t3Q&oe=62D53F62)
+![Web Development Company](https://i.ibb.co/vPcr3YG/cover-1.png)
 
 ### Hi there 👋, This is The WebTrue
 #### Web Development Company
